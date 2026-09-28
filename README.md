@@ -48,7 +48,7 @@ I built it for my own posts about fragrance, language and perception. This publi
 ## Author
 
 Kristina Vanhove: founder of Find My Smell, photographer and art director, based in Lille.
-[Add your LinkedIn link here]
+[LinkedIn](https://www.linkedin.com/in/kristina-vanhove/)
 
 ## Licence
 
